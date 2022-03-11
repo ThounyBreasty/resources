@@ -1,1 +1,1 @@
-Click on the file then click on dowbload
+Click on the file then click on download
